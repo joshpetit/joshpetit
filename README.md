@@ -1,9 +1,10 @@
-Hey I'm Josh! im also here:
+Sup! I'm also here:
 
 - [instagram](https://www.instagram.com/josh.petitma/) - Reach out to me about anything!
 - [youtube](https://www.youtube.com/channel/UClo6j1DhtvHIKBPcsmCgWlg) - I talk about some cool tech I use and occasionally make cringy, niche tech comedy
 
-Email me at `joshua@petit.dev`. I have a website that's been a WIP for a long time
-at [petit.dev](https://petit.dev).
+Email me at `joshua@petit.dev` with any questions and/or project requests!
 
-Keep your vision high!
+To see the other random things I do, look here: [josh.petit.dev](https://josh.petit.dev).
+
+LET'S DO SOMETHING AMAZING!! 🥳
