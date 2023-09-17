@@ -1,5 +1,3 @@
-Important Notice:
-
 **Download Bible Ram to help memorize scripture:**
 
 - [iOS](https://apps.apple.com/us/app/bible-ram-memorize-scripture/id6450688436)
